@@ -19,3 +19,9 @@ What do you think? Let me hear your oppinion and please tags your developer frie
 
 Link:
 https://youtu.be/TS4lDvBrdzY
+
+
+# Contribute to developement
+
+You can network with other developers under Issues.
+Please tell if you start coding this, I will be happy to share the link here 🤩👍
