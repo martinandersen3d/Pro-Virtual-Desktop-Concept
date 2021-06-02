@@ -1,5 +1,5 @@
 # Pro-Virtual-Desktop-Concept
 
-MS Powerpoint is here in this repository
+The animatiion is done in MS Powerpoint. You can get the powerpoint file here in this repository.
 
 https://youtu.be/TS4lDvBrdzY
