@@ -5,7 +5,7 @@ The animatiion is done in MS Powerpoint. You can get the powerpoint file here in
 https://youtu.be/TS4lDvBrdzY
 
 
-**Copy / paste this to your friends:**
+**Copy / paste this text to your friends:**
 
 👉PRO Virtual Desktop Concept?🤔👌 
 💎Using the arrow keys:
